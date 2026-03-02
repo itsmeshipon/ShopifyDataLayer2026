@@ -1,4 +1,4 @@
-https://docs.google.com/document/d/1tDk62XqUPuL7YUGLdelDkHKSxeoPeUrTlLwULpqBgxE/edit?usp=sharing
+Shopify DataLayer and JASON:
 
 
-https://drive.google.com/file/d/1ZhWojPzFlMTOvHPSyQR9DLExG4A29vPE/view?usp=sharing
+https://docs.google.com/document/d/1z4NjpUvb2bSLkIvw5CzE7R5mrBDGqs9uq4gDRE3AbF8/edit?usp=sharing
